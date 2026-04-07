@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 From UTM , Malaysia
 -------------------
 
-Currently studying Computer Network & Security 👩‍💻 A 1st year freshie 👩‍🦲
+Currently studying Computer Network & Security 👩‍💻 3rd year
 
 *   🌍  I'm based in Malaysia
 *   ✉️  You can contact me at [michelleleo99@gmail.com](mailto:michelleleo99@gmail.com)
